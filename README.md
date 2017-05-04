@@ -1,2 +1,9 @@
 # hello-world
-Jsut a random repository
+Just! a random repository.
+
+Hello my dear Valentine,
+
+How are we today?
+
+Greetings,
+Fränzi
